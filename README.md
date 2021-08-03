@@ -1,1 +1,1 @@
-# wzp.github.io
+# https://jumperman.github.io/wzp/
